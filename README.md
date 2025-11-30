@@ -33,3 +33,19 @@
 11. **[ulti_einstein - Za Warudo - Anime's Time Stop (BASS BUSTED)](https://www.myinstants.com/es/instant/za-warudo-animes-time-stop-bass-busted-50692/)**
 
 12. **[ulti_gauss - FAHHHHHHHHHHHHHH](https://www.myinstants.com/es/instant/fahhhhhhhhhhhhhh-3525/)**
+
+### Imagenes
+
+1. **[Einstein](https://www.pinterest.com/pin/764837949195288529/)**
+2. **[Gauss](https://www.redbubble.com/i/poster/Carl-Friedrich-Gauss-cute-style-by-ComicsFactory/153305673.LVTDI)**
+3. **[Tesla](https://polserra.blogspot.com/2011/08/caricatura-de-nikola-tesla-nikola-tesla.html)**
+4. **[Curie](https://www.freepik.es/vector-gratis/ilustracion-dibujada-mano-maria-curie_158858103.htm#fromView=keyword&page=1&position=0&uuid=824297be-7e2f-4511-a0f2-a1ceff5263c1&query=Marie+curie+estilo+anime)**
+5. **[Jobs](https://www.wittygraphy.com/caricature/0c90dfab-c124-4a33-b30e-75635346ce99/STEVE-JOBS.-Por-fin-os-enseno-la-caricatura-que-hice-hace-unos-meses-de-Steve-Jobs-publicada-en-el-numero-de-invierno-de-Exaggerated-Features-la-revista-trimestral-de-ISCA.-Espero-que-os-guste.)**
+6. **[Hongo](https://mario.fandom.com/es/wiki/Champiñón)**
+7. **[Naruto](https://naruto-rol.fandom.com/es/wiki/Clan_Uzumaki)**
+8. **[Gary](https://es.wikipedia.org/wiki/Gary_%28Bob_Esponja%29)**
+9. **[Escudo](https://es.pngtree.com/freepng/steel-medieval-shield-cartoon_15018556.html)**
+10. **[VS](https://commons.wikimedia.org/wiki/File:Street_Fighter_VS_logo.png)**
+11. **[Flecha](https://www.flaticon.es/icono-gratis/flecha-de-giro-a-la-izquierda_1453)**
+
+
